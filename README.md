@@ -1,5 +1,6 @@
 ### Data Scientist - Expert in Statistics and Credit Risk
 Skills and abilities: data processing, statistics, multicultural projects, strong adaptability and great team spirit. 👋  
+www.linkedin.com/in/jorgearmando92
 https://jorgearmando92.shinyapps.io/monitoring/
 
 ![image](https://user-images.githubusercontent.com/70816900/133685885-9e331df7-4d93-4cea-837b-5666b33f817d.png)
