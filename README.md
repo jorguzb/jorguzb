@@ -1,5 +1,5 @@
 ### Data Scientist - Expert in Statistics and Credit Risk
-Skills and abilities: data processing, statistics, multicultural projects, strong adaptability and great team spirit. 👋  
+Skills and abilities: data processing, statistics, multicultural projects, strong adaptability and great team spirit
 jorgearmando92@gmail.com
 
 www.linkedin.com/in/jorgearmando92 											
